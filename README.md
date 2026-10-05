@@ -1,5 +1,5 @@
 # 💫 About Me:
-💫 Hi 👋, I'm Siba Shankar Swain<br>💫 Hi 👋, I’m Siba Shankar Swain<br><br>System Desigining | Cloud Computing Enthusias | 🇮🇳 India<br><br>📧 Email: ✉️  sibashankarswain029@gmail.com<br><br>(For collaboration, projects, or anything else 😊) 🔭 I’m currently working on: —<br><br>🌱 I’m currently learning: Web Development<br><br>👯 I’m looking to collaborate on: Project-based work & collaboration<br><br>🤔 I’m looking for help with: Ongoing projects<br><br>💬 Ask me about: Collaboration, Tech Support<br><br>📫 How to reach me:  sibashankarswain029@gmail.com<br><br>😄 Pronouns: Siba Shankar Swain<br><br>⚡ Fun fact: I love tech, and tech loves me 🚀
+💫 Hi 👋, I'm Siba Shankar Swain<br>💫 Hi 👋, I’m Siba Shankar Swain<br><br>System Desigining | Cloud Computing Enthusias | 🇮🇳 India<br><br>📧 Email: ✉️  sibashankarswain029@gmail.com<br><br>(For collaboration, projects, or anything else 😊) 🔭 I’m currently working on: —<br><br>🌱 I’m currently learning: Web Development<br><br>👯 I’m looking to collaborate on: Project-based work & collaboration<br><br>🤔 I’m looking for help with: Ongoing projects<br><br>💬 Ask me about: Collaboration, Tech Support<br><br>📫 How to reach me:  sibashankarswain029@gmail.com<br><br>😄 Pronouns: Siba Shankar Swain<br><br>⚡ Fun fact: I love tech, and tech loves 🚀
 
 
 ## 🌐 Socials:
